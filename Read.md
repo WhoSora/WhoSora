@@ -1,0 +1,5 @@
+- 🐻 Sora/Noodle
+- 🪵 Mads Mikkelsen,Mads Mikkelsen and Mads Mikkelsen
+- 🐾 He/Him/It
+- Insta:whonoodle
+- Dis:who_sora 
