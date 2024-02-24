@@ -1,8 +1,9 @@
 # 🧬WELCOME TO RACOON CITY🧬
 ![64a1f81d075823c55f368a9071865a6c](https://github.com/WhoSora/WhoSora/assets/156549100/a1d584bb-bd67-4dfb-8d56-46d0a0755d3a)
 
+![door-resident-evil](https://github.com/WhoSora/WhoSora/assets/156549100/e475924e-1f0e-4fde-8f02-4e3a544d586c)
 
-![75f6dba52e88dfaa2c6e8be7f430b801](https://github.com/WhoSora/WhoSora/assets/156549100/a2df1aed-c2df-4986-b5d4-e94672623ae4)
+
 
 I am **Sora** or **Noodle**!
 
@@ -37,7 +38,7 @@ Literly anything with MAds Mikkelsen in it,Akira,Doroheoro,durarara!,**SoulEAter
 
 # 🧬SAVE ROOM🧬
 
-If you wanna be mutuals i'll let you know before hand that I do not do well with online relationships of anykind,its hard for me to keep up a good frindship with online people rather than my irl friends. Im also very blunt and dont really hide how I feel most of the time so if I say somthing that makes you rather unocmfrtable,please let me know and I will fix it. Other than that,im usally a pretty chill persona and a little imature but respectuffly so. I also have major ADHD so please keep that in mind if I do anything strange. <3
+If you wanna be mutuals i'll let you know before hand that I do not do well with online relationships of anykind,its hard for me to keep up a good frindship with online people rather than my irl friends. Im also very blunt and dont really hide how I feel most of the time so if I say somthing that makes you rather unocmfrtable,please let me know and I will fix it. Other than that,im usally a pretty chill person and a little imature but respectuffly so. I also have major ADHD so please keep that in mind if I do anything strange. <3
 
 
 
