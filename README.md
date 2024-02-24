@@ -33,7 +33,7 @@ David Bowie,Duster,Radiohead,TylerTheCreator,Crystal Castles,femtynal,HAve a Nic
 
 ## **TV/TELEVISION/SERIES**![9272-toro-silly](https://github.com/WhoSora/WhoSora/assets/156549100/21cf568e-866e-4994-9e9d-dab5e75f2d4b)
 
-Literly anything with MAds Mikkelsen in it,Akira,Doroheoro,durarara!,**SoulEAter**,Mob Psycho 100,Monster,Homonculous,GoodnightPunPun,Blood on the tracks,**CowboyBebop**,HunterXHunter,Ghibli,Nichijou,Satoshi Kon Productions,Ranking of kings,Matropolis,Ranma1/2,YuYuHakasho,DeadLeaves,**FLCL**,LupinTheThird,Trigun,ShinChan,Ghost Stories,Ergo Proxy,Black Lagoon,**Resident evil movies/shows**,Ghost in the shell,GunSlinger Girl
+Literly anything with MAds Mikkelsen in it,Akira,Doroheoro,durarara!,**SoulEAter**,Mob Psycho 100,Monster,Homonculous,GoodnightPunPun,Blood on the tracks,**CowboyBebop**,HunterXHunter,Ghibli,Nichijou,Satoshi Kon Productions,Ranking of kings,Matropolis,Ranma1/2,YuYuHakasho,DeadLeaves,**FLCL**,LupinTheThird,Trigun,ShinChan,Ghost Stories,Ergo Proxy,Black Lagoon,**Resident evil movies/shows**,Ghost in the shell,GunSlinger Girl,The Boys
 
 
 # 🧬SAVE ROOM🧬
