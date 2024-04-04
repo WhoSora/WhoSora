@@ -36,9 +36,11 @@ David Bowie,Duster,Radiohead,TylerTheCreator,Crystal Castles,femtynal,HAve a Nic
 Literly anything with MAds Mikkelsen in it,Akira,Doroheoro,durarara!,**SoulEAter**,Mob Psycho 100,Monster,Homonculous,GoodnightPunPun,Blood on the tracks,**CowboyBebop**,HunterXHunter,Ghibli,Nichijou,Satoshi Kon Productions,Ranking of kings,Matropolis,Ranma1/2,YuYuHakasho,DeadLeaves,**FLCL**,LupinTheThird,Trigun,ShinChan,Ghost Stories,Ergo Proxy,Black Lagoon,**Resident evil movies/shows**,Ghost in the shell,GunSlinger Girl,The Boys
 
 
-# 🧬SAVE ROOM🧬
+# 🧬SAVE ROOM🧬 (Important)
 
 If you wanna be mutuals i'll let you know before hand that I do not do well with online relationships of anykind,its hard for me to keep up a good frindship with online people rather than my irl friends. Im also very blunt and dont really hide how I feel most of the time so if I say somthing that makes you rather unocmfrtable,please let me know and I will fix it. Other than that,im usally a pretty chill person and a little imature but respectuffly so. I also have major ADHD so please keep that in mind if I do anything strange. <3
+
+Another thing is **I AM NOT LOOKING FOR ROMANTIC REALTIONSHIPS** !! I will tend to act platonic but please,it just platonic. I have had people in the past assume we are datig without actully telling me we are so I feel really bad when I have to let them know.
 
 
 
