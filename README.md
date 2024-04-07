@@ -20,12 +20,12 @@ Trans **FTM**
 ## **GENREAL**![5486-toro-peek](https://github.com/WhoSora/WhoSora/assets/156549100/8c5e05bf-17a1-4c61-a622-a8a4cf213533)
 
 
-Retro games,playstation horror,Wii,N64,DS,Hacking,**Mads Mikkelsen** <333,records,fashion,psycological horror,retro anime
+Retro games,playstation horror,Wii,N64,DS,Hacking,**Mads Mikkelsen** <333,records,fashion,psycological horror,retro anime,DC,Jerma985,Drawing,Detectives,Mystery
 
 ## **GAMES**![8416-toro-sticktongue](https://github.com/WhoSora/WhoSora/assets/156549100/d7f91efb-2cdc-40f2-a8f9-28b51ba272e9)
 
 
-**Resident evil**,Fatel Frame,**Rule of Rose**,Silent Hill,Haunting Ground,Earthbound 2,**Katamari**,Dragon Quest 8,Sonic & Knuckles,Croc,999,**SHADOW OF THE COLOUSES,ICO**(those two are my fav),JetSet,Parapa,Parisite Eve,Persona,Twlight Princess,Space Channel,**Bubble Bopple**,Okami,Halo 3,Devil may cry 1
+**Resident evil**,Fatel Frame,**Rule of Rose**,Silent Hill,Haunting Ground,Earthbound 2,**Katamari**,Dragon Quest 8,Sonic & Knuckles,Croc,999,**SHADOW OF THE COLOUSES,ICO**(those two are my fav),JetSet,Parapa,Parisite Eve,Persona,Twlight Princess,Space Channel,**Bubble Bopple**,Okami,Halo 3,Devil may cry 1,Batman,Ace attorney,999 series.
 
 ## **MUSIC**![4674-pixel-toro-jam](https://github.com/WhoSora/WhoSora/assets/156549100/f6c9d9f0-58ef-4620-8629-2cb60ddf1ed1)
 
@@ -33,7 +33,7 @@ David Bowie,Duster,Radiohead,TylerTheCreator,Crystal Castles,femtynal,HAve a Nic
 
 ## **TV/TELEVISION/SERIES**![9272-toro-silly](https://github.com/WhoSora/WhoSora/assets/156549100/21cf568e-866e-4994-9e9d-dab5e75f2d4b)
 
-Literly anything with MAds Mikkelsen in it,Akira,Doroheoro,durarara!,**SoulEAter**,Mob Psycho 100,Monster,Homonculous,GoodnightPunPun,Blood on the tracks,**CowboyBebop**,HunterXHunter,Ghibli,Nichijou,Satoshi Kon Productions,Ranking of kings,Matropolis,Ranma1/2,YuYuHakasho,DeadLeaves,**FLCL**,LupinTheThird,Trigun,ShinChan,Ghost Stories,Ergo Proxy,Black Lagoon,**Resident evil movies/shows**,Ghost in the shell,GunSlinger Girl,The Boys
+Literly anything with MAds Mikkelsen in it,Akira,Doroheoro,durarara!,**SoulEAter**,Mob Psycho 100,Monster,Homonculous,GoodnightPunPun,Blood on the tracks,**CowboyBebop**,HunterXHunter,Ghibli,Nichijou,Satoshi Kon Productions,Ranking of kings,Matropolis,Ranma1/2,YuYuHakasho,DeadLeaves,**FLCL**,LupinTheThird,Trigun,ShinChan,Ghost Stories,Ergo Proxy,Black Lagoon,**Resident evil movies/shows**,Ghost in the shell,GunSlinger Girl,The Boys,Batman
 
 
 # 🧬SAVE ROOM🧬 (Important)
