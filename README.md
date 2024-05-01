@@ -42,6 +42,8 @@ If you wanna be mutuals i'll let you know before hand that I do not do well with
 
 Another thing is **I AM NOT LOOKING FOR ROMANTIC REALTIONSHIPS** !! I will tend to act platonic but please,it just platonic. I have had people in the past assume we are datig without actully telling me we are so I feel really bad when I have to let them know.
 
+And lastly,I dont hate you if im ghosting you,I take long breaks from the interent sometimes so if you feel like youre being ghosted by me thats not true,reach out and I will let you know whats happening. I dont really like ghosting for hateful reaasons I will usally tell you if I dont find you interesting or if Im uncomfrtable speakig with you. 
+
 
 
 
